@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sarvar
 - 👀 I’m interested in IT
-- 🌱 I’m currently stydying in "Najot Talim"
+- 🌱 I’m currently stydying in "Najot Ta'lim"
 - 📫 How to reach me: a.sarvar.0606@gmail.com
 - ⚡️ Fun fact: Do you know me
 
